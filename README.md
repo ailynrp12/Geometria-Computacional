@@ -3,7 +3,7 @@ Semestre 2021-2
 
 **Profesor:** Jorge Urrutia Galicia
 
-**Profesor:** Adriana Ramrez Vigueras
+**Profesor:** Adriana Ramírez Vigueras
 
 **Ayudante:** Jesús Nestaly Marín Nevárez
 
